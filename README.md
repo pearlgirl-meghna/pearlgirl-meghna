@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on automating complex websites
 - 📫 How to reach me:Dont call me but text me :-)
 - 😄 Pronouns: pearlgirl_meghu
-- ⚡ Fun fact: U can call me meghu
+- ⚡ Fun fact: Born on lucky first month
 
 <!---
 pearlgirl-meghna/pearlgirl-meghna is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
